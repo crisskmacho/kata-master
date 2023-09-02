@@ -8,3 +8,7 @@ PASOS PARA LA PIZZA
     Precalentar el horno a 220°C.
 3. Preparar la masa:
     Estira la masa de pizza en una superficie enharinada basta obtener el tamaño deseado
+8. Hornear:
+    Coloca la pizza en el horno precalentado y hornea durante 12-15 minutos, o hasta que la masa este dorada y el queso este burbujeante y dorado.
+9. Enfriar y servir:
+    Saca la pizza del horno con cuidado y dejala enfriar durante unos minutos antes de cortarla en porciones. !Disfruta de la deliciosa pizza!
