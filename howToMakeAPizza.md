@@ -7,4 +7,7 @@ PASOS PARA LA PIZZA
 2. precalentar el horno:
     Precalentar el horno a 220°C.
 3. Preparar la masa:
-    Estira la masa de pizza en una superficie enharinada basta obtener el tamaño deseado
+    Estira la masa 6. Agregar ingredientes adicionales:
+  Agrega tus ingredientes, como piña, mortadela
+7. Doblar el borde:
+  Dobla el borde de la masa sobre lo
